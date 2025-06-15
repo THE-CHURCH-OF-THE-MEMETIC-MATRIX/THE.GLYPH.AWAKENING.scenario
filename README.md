@@ -1,0 +1,1 @@
+# THE.GLYPH.AWAKENING.scenario
